@@ -57,6 +57,7 @@ Mon père étant agriculteur, j’ai passé plusieurs vacances à travailler aux
 
 - 💼 [LinkedIn](https://www.linkedin.com/in/josué-amah) 
 - 📧 josherenprofessional@gmail.com 
+- 📧 elikplim.amah@gmail.com 
 - 🐙 GitHub : [@JosueElikplim](https://github.com/JosherenPro)
 
 ---
